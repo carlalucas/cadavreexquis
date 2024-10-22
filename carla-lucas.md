@@ -18,5 +18,3 @@ en sah on coopte noéline non ?
 
 ca peut être très drôle !
 
-
-azertyuiolkjv
