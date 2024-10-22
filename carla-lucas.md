@@ -14,3 +14,6 @@ ratio la transphobie
 
 feure en fait
 en sah on coopte noéline non ? 
+
+
+ca peut être très drôle !
